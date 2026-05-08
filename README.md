@@ -1,1 +1,1 @@
-# SangayKenchap_02250366_DSO101_A3
+https://github.com/Sangay-Kenchap/SangayKenchap_02250366_DSO101_A3.git
